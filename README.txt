@@ -1,2 +1,0 @@
-AFtab khan 
-Portfolio website 
